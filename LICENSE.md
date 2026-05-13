@@ -1,4 +1,4 @@
-#  
+#  plants vs brainrots custom Script is the best plants vs brainrots Script, featuring no cooldown and one-hit kill. Safe and powerful for all your
 
 
 
